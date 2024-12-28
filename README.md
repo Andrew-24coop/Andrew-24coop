@@ -2,7 +2,7 @@
 - I’m interested in Space Engineering
 - I’m currently learning Python, C/C++, Java and Arduino
 - I’m looking to collaborate on International Space Project or Programming
-- How to reach me +7(916)-316-5050 or andyspacex10@gmail.com
+- How to reach me andyspacex10@gmail.com
 - Pronouns: he/him
 - Fun fact: I started learning rocketry at 10 y/o
 
